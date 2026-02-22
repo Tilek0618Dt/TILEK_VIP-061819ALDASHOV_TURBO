@@ -1,0 +1,2 @@
+# TILEK_VIP-061819ALDASHOV_TURBO
+"Менин супер стартаб AI BOTUM"
